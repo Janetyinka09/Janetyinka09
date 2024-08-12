@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Janetyinka09
 - 👀 I’m interested in music,art and basketball
 - 🌱 I’m currently learning programming and graphic designing
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on different projects
 - 📫 How to reach me: follow me on tiktok and instagram @jancyalice09
-- 😄 Pronouns: ...
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: i'm a nigerian
 
 <!---
