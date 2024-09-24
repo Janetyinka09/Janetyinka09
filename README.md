@@ -2,7 +2,7 @@
 - 👀 I’m interested in music,art and basketball
 - 🌱 I’m currently learning programming and graphic designing
 - 💞️ I’m looking to collaborate on different projects
-- 📫 How to reach me: follow me on tiktok and instagram @jancyalice09
+- 📫 How to reach me: follow me on tiktok and instagram @jancyalice09 and @ajcodes2009 respectively.
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: i'm a nigerian
 
